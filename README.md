@@ -1,2 +1,2 @@
 # FYCS36
-Something very Special to make happy mind.
+Something very Special.
